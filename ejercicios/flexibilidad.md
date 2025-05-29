@@ -31,3 +31,15 @@ Los ejercicios de flexibilidad son actividades diseñadas para aumentar la capac
 * Evitar rebotar durante los estiramientos para prevenir lesiones.
 
 * Mantener una respiración controlada y relajada durante los estiramientos.
+
+## Consejos
+
+* Incorporar ejercicios de flexibilidad como parte regular de la rutina de entrenamiento, complementando el trabajo de fuerza y cardio.
+
+* Adaptar la intensidad y duración de los estiramientos según la edad, nivel de actividad y tipo corporal.
+
+* Consultar con un especialista en caso de dolor persistente o condiciones médicas.
+
+* Variar los tipos de estiramientos para trabajar diferentes aspectos de la flexibilidad y evitar estancamientos.
+
+* Practicar disciplinas como yoga o pilates, que combinan flexibilidad con fuerza y equilibrio, para un beneficio integral.
