@@ -16,3 +16,16 @@ El yoga es una práctica milenaria que combina posturas físicas (asanas), técn
 
 * Promueve el autoconocimiento y la conciencia corporal, ayudando a prevenir lesiones y a vivir de forma más consciente
 
+## Instrucciones
+
+* Encuentra un espacio tranquilo donde puedas moverte con comodidad y sin interrupciones.
+
+* Comienza con una clase para principiantes o bajo la guía de un instructor certificado para aprender la técnica correcta.
+
+* Realiza un calentamiento suave para preparar el cuerpo.
+
+* Ejecuta las posturas (asanas) coordinando el movimiento con la respiración, manteniendo la concentración en las sensaciones corporales.
+
+* Incluye técnicas de respiración consciente para mejorar la relajación y el control mental.
+
+* Finaliza con ejercicios de meditación o relajación para integrar los beneficios físicos y mentales.
