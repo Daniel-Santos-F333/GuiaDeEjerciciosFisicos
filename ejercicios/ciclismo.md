@@ -16,3 +16,16 @@ El ciclismo es una actividad física que consiste en desplazarse en bicicleta, y
 + Salud mental: Oxigena el cerebro, combate el estrés, mejora el estado emocional y el sueño gracias a la liberación de endorfinas, dopamina y serotonina.
 
 + Prevención de enfermedades: Reduce el riesgo de infarto en más de un 50%, previene diabetes tipo 2, mejora la salud ósea y protege las articulaciones.
+
+## Instrucciones
++ Comenzar con sesiones de baja intensidad y duración, adaptadas al nivel físico personal.
+
++ Mantener una postura correcta en la bicicleta, con la espalda recta y las manos relajadas.
+
++ Pedalear con ritmo constante, evitando movimientos bruscos o excesiva tensión muscular.
+
++ Incrementar gradualmente la intensidad y duración para mejorar resistencia y fuerza.
+
++ Usar casco y equipo de seguridad adecuado para prevenir lesiones.
+
++ Realizar calentamiento previo y estiramientos después de montar para evitar molestias musculares.
