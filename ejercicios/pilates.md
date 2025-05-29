@@ -18,3 +18,17 @@ Es un sistema de ejercicio físico y mental creado por Joseph Hubertus Pilates a
 + Reduce el estrés, mejora la concentración y la conexión mente-cuerpo, promoviendo bienestar mental.
 
 + Es útil en rehabilitación física y prevención de lesiones, así como complemento para deportistas.
+
+## Instrucciones
+
++ Realizar los ejercicios con concentración y control, manteniendo la respiración profunda y coordinada con los movimientos.
+
++ Empezar con ejercicios básicos y pocas repeticiones, adaptados al nivel de cada persona.
+
++ Mantener una postura correcta durante toda la ejecución, prestando atención a la alineación corporal y al control del "core".
+
++ Realizar movimientos lentos, precisos y fluidos, evitando brusquedades que puedan causar lesiones.
+
++ Utilizar colchoneta o máquinas específicas según la modalidad y disponibilidad.
+
++ Incorporar accesorios como bandas elásticas, pelotas de estabilidad o rodillos para variar y potenciar el entrenamiento.
