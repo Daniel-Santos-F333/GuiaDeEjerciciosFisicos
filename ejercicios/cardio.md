@@ -11,3 +11,10 @@ El cardio, o ejercicio cardiovascular, es un tipo de actividad física que eleva
 * Mejora la capacidad pulmonar
 * Reduce el riesgo de enfermedades crónicas
 
+## Instrucciones
++ **Frecuencia:** Se recomienda ejercicios cardiovasculares entre 3 y 5 días
++ **Duración:** Hacer sesiones de al menos 30 minutos continuos o acumulados para obtener beneficios óptimos.
++ **Intensidad** Mantener una intensidad moderada, donde la respiración y el ritmo aumenten, per aún sea posible hablar.
++ **Combinación:** Es mucho más beneficioso mezclar ejercicios de fuerza con cardio para mejores resultados en salud y condición física.
+
+
