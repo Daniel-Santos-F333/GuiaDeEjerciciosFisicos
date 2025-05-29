@@ -15,3 +15,20 @@ El entrenamiento de fuerza consiste en realizar movimientos controlados que obli
 * Incrementa el metabolismo basal, ayudando al control de peso.
 
 * Mejora la salud cardiovascular y el bienestar general.
+
+## Instrucciones
+
+* Realizar ejercicios con la técnica adecuada para evitar lesiones.
+
+* Empezar con cargas moderadas y aumentar progresivamente.
+
+* Realizar entre 8 y 12 repeticiones por serie, con 2 a 4 series por ejercicio.
+
+* Incorporar descansos adecuados entre series para recuperación.
+
+* Combinar diferentes tipos de fuerza según objetivos (máxima, explosiva, resistencia).
+
+* Incluir calentamiento previo y estiramientos posteriores.
+
+* Consultar con un profesional si se tienen condiciones médicas o se es principiante.
+
