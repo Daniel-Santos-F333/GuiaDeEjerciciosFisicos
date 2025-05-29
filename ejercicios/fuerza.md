@@ -32,3 +32,16 @@ El entrenamiento de fuerza consiste en realizar movimientos controlados que obli
 
 * Consultar con un profesional si se tienen condiciones médicas o se es principiante.
 
+## Consejos
+
+* Varía los ejercicios para trabajar todos los grupos musculares.
+
+* Mantén una respiración controlada durante el ejercicio.
+
+* Escucha a tu cuerpo y evita sobrecargas que puedan causar lesiones.
+
+* Combina el entrenamiento de fuerza con ejercicios cardiovasculares para un acondicionamiento completo.
+
+* Mantén una alimentación adecuada para favorecer la recuperación y crecimiento muscular.
+
+* Sé constante y paciente para ver resultados progresivos.
