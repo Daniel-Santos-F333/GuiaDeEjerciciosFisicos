@@ -17,4 +17,8 @@ El cardio, o ejercicio cardiovascular, es un tipo de actividad física que eleva
 + **Intensidad** Mantener una intensidad moderada, donde la respiración y el ritmo aumenten, per aún sea posible hablar.
 + **Combinación:** Es mucho más beneficioso mezclar ejercicios de fuerza con cardio para mejores resultados en salud y condición física.
 
-
+## Consejos
+* Empieza poco a poco, si eres principante, aumenta gradualmente la duración para evitar lesiones.
+* Mantén una buena hidratación y alimentación para potenciar los beneficios
+* Varía las actividades para evitar el aburrimiento y trabajar diferentes grupos musculares.
+* Consulta con un profesional de la salud antes de iniciar un programa de ejercicios si tienes condiciones médicas preexistentes
