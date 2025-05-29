@@ -29,3 +29,19 @@ El yoga es una práctica milenaria que combina posturas físicas (asanas), técn
 * Incluye técnicas de respiración consciente para mejorar la relajación y el control mental.
 
 * Finaliza con ejercicios de meditación o relajación para integrar los beneficios físicos y mentales.
+
+## Consejos
+
++ Escucha a tu cuerpo y no fuerces posturas que causen dolor o incomodidad.
+
++ Mantén una mente abierta y paciente; el yoga es un proceso de autoconocimiento, no una competencia.
+
++ Usa ropa cómoda que permita libertad de movimiento.
+
++ Hidrátate adecuadamente antes y después de la práctica.
+
++ Considera combinar yoga con otras actividades saludables para potenciar sus beneficios.
+
++ Busca un instructor calificado que pueda corregir tu técnica y adaptar las posturas a tus necesidades.
+
++ Integra la práctica en tu vida diaria para mejorar tu bienestar físico y emocional a largo plazo.
