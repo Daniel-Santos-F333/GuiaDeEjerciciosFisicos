@@ -30,3 +30,14 @@ El entrenamiento funcional consiste en realizar ejercicios que imitan movimiento
 5. Incluir variedad: Alterna ejercicios para trabajar diferentes grupos musculares y capacidades como fuerza, resistencia y coordinación.
 
 6. Enfriamiento y estiramientos: Finaliza con estiramientos para mejorar la flexibilidad y recuperación.
+
+## Consejos
++ Prioriza la calidad del movimiento sobre la cantidad o velocidad para evitar lesiones.
+
++ Escucha a tu cuerpo y adapta los ejercicios según tu nivel de condición física.
+
++ Integra ejercicios que imiten tus actividades diarias o deportivas específicas para mayor funcionalidad.
+
++ Usa equipamiento básico como bandas elásticas, pesas libres o kettlebells para añadir resistencia progresiva.
+
++ Combina el entrenamiento funcional con una dieta equilibrada para maximizar resultados en fuerza y composición corporal.
