@@ -15,3 +15,19 @@ Los ejercicios de flexibilidad son actividades diseñadas para aumentar la capac
 * Favorece la recuperación post-entrenamiento al reducir la rigidez muscular y mejorar la circulación sanguínea, ayudando a eliminar toxinas acumuladas.
 
 * Contribuye a la relajación física y mental, ayudando a reducir tensiones y mejorando el ánimo gracias a la producción de endorfinas
+
+## Instrucciones
+
+* Realizar estiramientos manteniendo la posición en el punto de tensión o ligera molestia durante 10 a 30 segundos.
+
+* Realizar de 2 a 4 series por ejercicio, al menos 2 o 3 veces por semana, aunque la práctica diaria es ideal para mejores resultados.
+
+* Incluir ejercicios que abarquen los principales grupos musculares.
+
+* Empezar con estiramientos dinámicos para calentar y preparar los músculos antes de entrenar.
+
+* Utilizar estiramientos estáticos o FNP después del ejercicio para mejorar la flexibilidad de forma más profunda.
+
+* Evitar rebotar durante los estiramientos para prevenir lesiones.
+
+* Mantener una respiración controlada y relajada durante los estiramientos.
