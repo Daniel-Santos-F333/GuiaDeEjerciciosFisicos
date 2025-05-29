@@ -32,3 +32,15 @@ Es un sistema de ejercicio físico y mental creado por Joseph Hubertus Pilates a
 + Utilizar colchoneta o máquinas específicas según la modalidad y disponibilidad.
 
 + Incorporar accesorios como bandas elásticas, pelotas de estabilidad o rodillos para variar y potenciar el entrenamiento.
+
+## Consejos
+
++ Consultar con un profesional certificado para aprender la técnica correcta y evitar lesiones.
+
++ Adaptar los ejercicios a las condiciones físicas personales y posibles limitaciones o lesiones.
+
++ Mantener una rutina constante para favorecer la adaptación muscular y neurológica al método.
+
++ Escuchar al cuerpo y no forzar movimientos que causen dolor o incomodidad.
+
++ Complementar Pilates con otras actividades físicas y una alimentación equilibrada para mejores resultados generales.
