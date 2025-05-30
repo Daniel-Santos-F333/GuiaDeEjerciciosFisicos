@@ -33,3 +33,16 @@ La natación es un ejercicio físico que consiste en desplazarse y realizar movi
 + Nadar en piscinas para principiantes, ya que el mar puede presentar corrientes y olas que requieren experiencia.
 
 + Usar equipo adecuado como gafas, gorro y traje de baño cómodo.
+
+## Consejos
++ Practicar con regularidad para obtener beneficios físicos y mentales sostenidos.
+
++ Escuchar al cuerpo y evitar forzar movimientos que causen dolor.
+
++ Combinar la natación con otras actividades físicas para un entrenamiento integral.
+
++ Consultar con un profesional si se tiene alguna condición médica antes de comenzar.
+
++ Si se nada en el mar, elegir días con condiciones seguras y buena visibilidad.
+
++ Mantener una hidratación adecuada y cuidar la alimentación para mejorar el rendimiento.
