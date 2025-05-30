@@ -1,4 +1,4 @@
-# Ejercicio Boxeo
+# Ejercicio de Boxeo :boxing_glove:
 
 ## Descripción
 
