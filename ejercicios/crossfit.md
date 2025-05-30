@@ -16,3 +16,16 @@
 + **Beneficios mentales:** Reduce el estrés, mejora la concentración, aumenta la confianza y fomenta la socialización gracias al trabajo en comunidad.
 
 + **Adaptabilidad:** Es accesible para personas de distintos niveles y edades, desde principiantes hasta atletas de élite
+
+## Instrucciones
++ Realizar un calentamiento previo para preparar el cuerpo.
+
++ Seguir las rutinas diarias conocidas como WOD (Workout of the Day), que varían constantemente para evitar la monotonía.
+
++ Ejecutar movimientos funcionales que imitan actividades cotidianas, como sentadillas, levantamientos y empujes.
+
++ Mantener la intensidad alta pero controlada, adaptando la carga y repeticiones según el nivel individual.
+
++ Incluir ejercicios de halterofilia, gimnasia, carrera y trabajo metabólico.
+
++ Finalizar con estiramientos para facilitar la recuperación muscular.
