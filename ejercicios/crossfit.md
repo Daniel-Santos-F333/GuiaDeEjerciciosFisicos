@@ -29,3 +29,17 @@
 + Incluir ejercicios de halterofilia, gimnasia, carrera y trabajo metabólico.
 
 + Finalizar con estiramientos para facilitar la recuperación muscular.
+
+## Consejos
+
++ Consultar con un profesional antes de comenzar, especialmente si se tienen condiciones médicas.
+
++ Aprender la técnica correcta de cada ejercicio para evitar lesiones.
+
++ Escalar los ejercicios y la intensidad según la capacidad personal.
+
++ Mantener una alimentación equilibrada y adecuada para apoyar el entrenamiento.
+
++ Aprovechar el ambiente grupal para motivarse y mantener la constancia.
+
++ Escuchar al cuerpo y respetar los tiempos de descanso para una recuperación óptima.
