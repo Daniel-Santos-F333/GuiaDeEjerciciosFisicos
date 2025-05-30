@@ -20,3 +20,17 @@ El boxeo es un deporte de combate que consiste en el enfrentamiento entre dos pe
 + Favorece el autocontrol y la autodisciplina.
 
 + Mejora la concentración, la atención y la agilidad mental.
+
+## Instrucciones
+
++ Comenzar con un calentamiento adecuado para preparar músculos y articulaciones.
+
++ Aprender la técnica correcta de golpes, defensa y movimientos de pies bajo la supervisión de un entrenador certificado.
+
++ Realizar entrenamientos que combinen ejercicios de resistencia, fuerza, velocidad y coordinación.
+
++ Mantener una postura correcta y proteger siempre las manos con vendajes y guantes adecuados.
+
++ Incluir ejercicios de sombra, trabajo con saco y entrenamiento con compañero para mejorar técnica y reflejos.
+
++ Finalizar con estiramientos para favorecer la recuperación muscular.
