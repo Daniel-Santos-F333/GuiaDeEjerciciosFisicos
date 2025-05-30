@@ -29,3 +29,17 @@ El ciclismo es una actividad física que consiste en desplazarse en bicicleta, y
 + Usar casco y equipo de seguridad adecuado para prevenir lesiones.
 
 + Realizar calentamiento previo y estiramientos después de montar para evitar molestias musculares.
+
+## Consejos
+
++ Consultar con un profesional de la salud antes de empezar si se tienen condiciones médicas.
+
++ Elegir rutas adecuadas al nivel y condiciones físicas, evitando terrenos muy difíciles al inicio.
+
++ Mantener hidratación y alimentación adecuada para sostener la energía.
+
++ Revisar regularmente el estado de la bicicleta para evitar accidentes.
+
++ Usar ropa cómoda y adecuada para la temperatura y condiciones climáticas.
+
++ Combinar el ciclismo con otras actividades físicas para un entrenamiento integral.
