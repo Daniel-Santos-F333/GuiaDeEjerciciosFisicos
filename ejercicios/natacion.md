@@ -19,3 +19,17 @@ La natación es un ejercicio físico que consiste en desplazarse y realizar movi
 + Promueve la relajación muscular y mental debido al efecto calmante del agua y la respiración rítmica.
 
 + Ayuda a dormir mejor y reduce los niveles de cortisol, la hormona del estrés.
+
+## Instrucciones
+
++ Realizar un calentamiento previo fuera y dentro del agua para preparar los músculos.
+
++ Empezar con ejercicios básicos y estilos sencillos, adaptados al nivel personal.
+
++ Mantener una respiración rítmica y coordinada con los movimientos.
+
++ Concentrarse en la técnica para evitar lesiones y mejorar la eficiencia del nado.
+
++ Nadar en piscinas para principiantes, ya que el mar puede presentar corrientes y olas que requieren experiencia.
+
++ Usar equipo adecuado como gafas, gorro y traje de baño cómodo.
