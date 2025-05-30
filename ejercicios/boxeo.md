@@ -34,3 +34,19 @@ El boxeo es un deporte de combate que consiste en el enfrentamiento entre dos pe
 + Incluir ejercicios de sombra, trabajo con saco y entrenamiento con compañero para mejorar técnica y reflejos.
 
 + Finalizar con estiramientos para favorecer la recuperación muscular.
+
+## Consejos
+
++ Consultar con un profesional de la salud antes de iniciar si se tienen condiciones médicas.
+
++ Usar siempre el equipo de protección necesario (guantes, casco, protector bucal).
+
++ Progresar gradualmente en intensidad y duración para evitar lesiones.
+
++ Escuchar al cuerpo y descansar adecuadamente entre sesiones.
+
++ Mantener una alimentación equilibrada e hidratación constante.
+
++ Practicar con regularidad para maximizar beneficios físicos y mentales.
+
++ En caso de practicar boxeo recreativo para manejo de estrés, enfocarse en la técnica y el control emocional, evitando confrontaciones físicas fuera del entrenamiento.
